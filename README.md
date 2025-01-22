@@ -1,0 +1,1 @@
+# articulate-uas-minah-smt5
